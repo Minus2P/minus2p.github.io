@@ -4,6 +4,7 @@
 # Apăsați pe textul albastru pentru a vedea mai multe informații. 
 # Un share pe Instagram ne-ar ajuta enorm <3 
 ## UPD1: Am văzut că se știe identitatea lui <b>Minzat Radu Bogdan, din Jichisu De Jos, jud CJ</b>, chiar și fără să amintim noi. Atunci nu mai e nimic de ascuns :) pt reclamări sau comunicare: proiecturs@keemail.me. Nu garantăm răspuns, proiectul e de un an. 
+## UPD2: Degeaba încerci pedofile, avem ajutor și de la vecinii de la Jichișu De Jos, Nr.125. Nici frate'tu nu ne oprește, stai liniștit.
 
 https://www.facebook.com/minzat.radu
 https://www.instagram.com/bogdanmrb/
